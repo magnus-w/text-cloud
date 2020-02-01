@@ -1,1 +1,1 @@
-# Text in the Machine
+# Ideas for Medium
